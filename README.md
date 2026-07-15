@@ -1,0 +1,1 @@
+[Mounika_Guttula_Project_Report_Fashion_Recommendation_System.docx](https://github.com/user-attachments/files/30034408/Mounika_Guttula_Project_Report_Fashion_Recommendation_System.docx)
